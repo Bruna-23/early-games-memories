@@ -1,5 +1,5 @@
 # Early Games Memories
-##A quick trip about the games I played when I was young 🎮
+## A quick trip about the games I played when I was young 🎮
 
 This is a DIO challenge to create a repository where I can show what I learned about GitHub/Git, and I chose to relive some good old memories about videogames I played when I was a kid.
 
