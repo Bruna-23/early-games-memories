@@ -7,7 +7,7 @@ It's a simple and organized folder with some of my beloved PC games, where I had
 
 And when I was a little older, I started playing in other people's videogames, like PlayStation 1 and 2, whenever I had the chance. There was also a local store where I could pay R$3/hour (about $1 at the time) to play PlayStation 1 and 2.
 
-When I was 19 years old, I finally got my own videogame, which was PlayStation 3, and since then I never stopped playing. So I bought the PlayStation 4 Gold Edition, and now I have the amazing PlayStation 5 with the DualSense controller that gives a much more imersive experience.
+When I was 19 years old, I finally got my own videogame with my own money, which was PlayStation 3, and since then I never stopped playing. So I bought the PlayStation 4 Gold Edition, and now I have the amazing PlayStation 5 with the DualSense controller that gives a much more imersive experience.
 
 So I have a lot of lovely moments in my head where videogames were present, especially now that I have a wife that also LOVES videogames like me. 💙
 
